@@ -29,5 +29,5 @@ I'm currently active in contributing as Curriculum Developer at <a href="https:/
 
 ### Reach me on
 - <a href="https://www.linkedin.com/in/rifqi-akyas-hifdzi-rahman">LinkedIn</a>
-- <a href="https://instagram.com/rifqiakyas">Instagram</a>
+- <a href="https://instagram.com/rifqi_akyas">Instagram</a>
 - <a href="https://twitter.com/rifqiakyas29">Twitter</a>
